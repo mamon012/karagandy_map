@@ -1,0 +1,1 @@
+# karagandy_map
